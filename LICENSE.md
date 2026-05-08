@@ -1,4 +1,4 @@
-
+new Filter for Adobe Photoshop for macOS - blend modes and color correction is the best Adobe Photoshop for macOS filter, featuring blend modes and color correction. Safe,
 
 
 
